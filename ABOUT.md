@@ -1,3 +1,3 @@
 Hello there!
 
-My name is Max Mustermann, I'm 25 years old and live in Steyr in Upper Austria.
+My name is Learta Zeka, I'm 17 years old and live in Upper Austria.
