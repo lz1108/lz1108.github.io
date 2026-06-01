@@ -1,5 +1,5 @@
-
-[HOME](https://lz1108.github.io)     [ABOUT ME](https://lz1108.github.io/ABOUT)
+  
+[HOME](https://lz1108.github.io)                 [ABOUT ME](https://lz1108.github.io/ABOUT)
 
 
 
